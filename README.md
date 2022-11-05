@@ -1,1 +1,0 @@
-# TRITPO_labs
